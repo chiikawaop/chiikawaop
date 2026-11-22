@@ -18,6 +18,6 @@ ${\textsf{\color{#c2bcd2}𓏼    ◜ ͡   ♡    }}$ ㅤㅤ ${\textsf{\color{#c2
         <div align="center">
 <img align="right" src="https://file.garden/awJlyxKUoAW8oPo1/Meta_AI_bear_brown_cutout_20261122_103428.png" width="60">
 
-<sub>$\color{#EAD195}{\textsf{ lying childㅤ\color{#FACEC2}lying childㅤ\color{#005c9e}you're such aㅤ\color{#A0CBE6}lying childㅤ}}$</sub>
+<sub>$\color{#EAD195}{\textsf{ jess / jdzㅤ\color{#FACEC2}he theyㅤ\color{#005c9e}16.yoㅤ\color{#A0CBE6}transmasc aroace aceㅤ}}$</sub>
 </table>
 

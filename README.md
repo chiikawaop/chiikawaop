@@ -12,6 +12,10 @@ ${\textsf{\color{#EAD195}𓏼    ◜ ͡   ♡    }}$ ㅤㅤ ${\textsf{\color{#FA
 
 <br>
 
+<p align="center"> $\color{#FACEC2}{\text{────୨ৎ────}}$ </p>
+
+<br>
+
   <table>
     <tr>      
       <td>
